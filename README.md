@@ -9,7 +9,8 @@
 
  ${\textsf{\color{#44444} I ship erasermic and erasermight! (*￣3￣)╭}}$
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/01fae9b8-bbe1-4643-b7d5-f00c712e4c0a" />
+<img width="635" height="615" alt="image" src="https://github.com/user-attachments/assets/fc1b38c1-994a-4bea-8645-285bcbde2a04" />
+
 
 
 ${\textsf{\color{#666666}Go Beyond, Plus ultra!}}$
